@@ -19,4 +19,9 @@ In your free time go ahead and start digging a hole in the ground for a [well](h
 ## Getting Water to Your Homes
 
 Temp placeholder
-Site under maintenance [over 8 pounds a gallon](https://www.usgs.gov/special-topic/water-science-school/science/story-water-dryville)
+[over 8 pounds a gallon](https://www.usgs.gov/special-topic/water-science-school/science/story-water-dryville)
+
+## Dryville's First Water Works
+
+Temp placeholder
+[example 2](https://www.usgs.gov/special-topic/water-science-school/science/story-water-dryville)
